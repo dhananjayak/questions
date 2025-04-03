@@ -1,4 +1,3 @@
-Here’s the formatted content for easy copy-pasting into a Word document. You can adjust fonts, spacing, and styling as needed.
 
 ---
 
